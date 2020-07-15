@@ -1,2 +1,0 @@
-# cowart
-bemoeizorgguru:s
